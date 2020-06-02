@@ -1,6 +1,6 @@
 # job-security
 
-everybody's dream
+Hey there,
 
-hey there, i like reading, watching movies, drinking coffee(no milk, no sugar)
+I like reading, watching movies, drinking coffee(no milk, no sugar)
 i have watched hollywood and nollywood not bollywood
